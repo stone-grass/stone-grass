@@ -31,3 +31,13 @@ The core of every playthrough revolves around a three-step cycle designed for ma
 As you earn coins by playing, you can visit the upgrade shop to enhance your overall efficiency. Focus on **Cutting Power** to handle tougher vegetation, **Movement Speed** to clear fields faster, and **Storage Capacity** to minimize the number of trips back to the market.
 
 Once a field is fully cleared, you will unlock new, larger zones. These areas offer denser grass and unique layouts, providing a steady challenge as you work toward building the ultimate farming empire. Success in Stone Grass is all about finding your perfect flow—balancing the path of your mower with the timing of your upgrades.
+
+## Where You Can Find Us
+https://gravatar.com/fearless9e25a5bdb1
+https://bsky.app/profile/stonegrass.bsky.social
+https://www.pinterest.com/stonegrassonline/
+https://about.me/stonegrass
+https://medium.com/@zickfredline/about
+https://500px.com/p/zickfredline
+https://www.behance.net/fredlinezick
+https://www.blogger.com/profile/09554770093576445360
